@@ -1,3 +1,3 @@
 # TheJuliana.github.io
-Nickname: Moonshine
+Ник: Moonshine
 Педагог: Слободчикова Екатерина Андреевна
